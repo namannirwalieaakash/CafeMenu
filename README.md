@@ -1,1 +1,1 @@
-Link to view the page is - https://aakashdeepsinghnirwal.github.io/CafeMenu/
+Link to view the page is - https://namannirwalieaakash.github.io/CafeMenu/
